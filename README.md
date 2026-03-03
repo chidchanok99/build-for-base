@@ -11,3 +11,4 @@ iran usa war
 risk --ฬ99
 1+1+1
 3
+2*2*5
