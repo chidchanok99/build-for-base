@@ -7,3 +7,4 @@ use sent chatgpt to search it
 ok
 funny
 gg
+iran usa war
