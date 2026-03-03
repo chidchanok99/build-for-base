@@ -8,3 +8,4 @@ ok
 funny
 gg
 iran usa war
+risk --ฬ99
