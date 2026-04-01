@@ -9,7 +9,7 @@ funny
 gg6
 iran usa war
 risk --ฬ99
-1+1+1
+1+1+17
 3
 2*2*5
 20
