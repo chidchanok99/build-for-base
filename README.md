@@ -6,7 +6,7 @@ q1 i want to know why base better than L24
 use sent chatgpt to search it
 ok5
 funny
-gg
+gg6
 iran usa war
 risk --ฬ99
 1+1+1
