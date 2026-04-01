@@ -4,7 +4,7 @@ day 1 3
 search or use ai to find data 
 q1 i want to know why base better than L24
 use sent chatgpt to search it
-ok
+ok5
 funny
 gg
 iran usa war
