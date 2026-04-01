@@ -1,5 +1,5 @@
 # build-for-base1
-i love base
+i love base2
 day 1 
 search or use ai to find data 
 q1 i want to know why base better than L2
